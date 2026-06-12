@@ -1,0 +1,1 @@
+# Manual-escritorio-remoto-kiara.
